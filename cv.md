@@ -1,8 +1,8 @@
-Гена Амон
+Gena Amon
 +375298627963
-Учу прогу
+Learning JS
 English speaker for a little bit
-Кода нет((
-Опыта тоже((
-Верхнее инженерное
+No code((
+0 EXP((
+Engineer
 B2
