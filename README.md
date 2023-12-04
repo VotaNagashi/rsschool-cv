@@ -1,1 +1,1 @@
-# rsschool-cv
+ https://VotaNagashi.github.io/rsschool-cv/cv
