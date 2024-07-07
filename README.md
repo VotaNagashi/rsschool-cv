@@ -1,1 +1,1 @@
-https://votanagashi.github.io/rsschool-cv/cv
+https://votanagashi.github.io/rsschool-cv/
